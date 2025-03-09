@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/c514f295-603b-4f89-8a4c-f1f198eed46b" />
+  <img src="https://github.com/user-attachments/assets/3cf274d2-c5a2-40ee-8349-d6ae65a6a758" />
 </p>
 <p align="center">
  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
