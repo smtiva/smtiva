@@ -9,7 +9,7 @@
   <img src="https://github.com/user-attachments/assets/5b3a43a2-d7e5-4d80-bced-13dc1712e8ff" />
 </p>
 <p align="center">
- <img src="https://github.com/user-attachments/assets/b30795ac-c102-4ba7-977d-0e012336c07b"/> hero / hito <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> no prns <img src="https://github.com/user-attachments/assets/b30795ac-c102-4ba7-977d-0e012336c07b""/>
+ <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
 
 
 </p>
