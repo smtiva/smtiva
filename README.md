@@ -2,7 +2,7 @@
   <img src="https://github.com/user-attachments/assets/1430cb22-d8ec-43aa-b87f-024a4b184024" />
 </p>
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=HlTOSHURA&color=66CCFF" /> <img src="https://github.com/user-attachments/assets/d452a960-aa2d-4c31-9793-6170c5ba8045"/>
+  <img src="https://komarev.com/ghpvc/?username=smtiva&color=66CCFF" /> <img src="https://github.com/user-attachments/assets/d452a960-aa2d-4c31-9793-6170c5ba8045"/>
 
 </p>
 <p align="center">
