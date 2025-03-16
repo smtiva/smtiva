@@ -9,7 +9,7 @@
 </p>
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/7ed07675-57d4-483b-a2f6-10cd6b32a8b2" />
+  <img src="https://github.com/user-attachments/assets/3dd45b63-af8b-4d1f-bd74-41b9721358b6" />
 </p>
 <p align="center">
  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
