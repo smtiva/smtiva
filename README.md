@@ -3,10 +3,13 @@
 </p>
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=smtiva&color=66CCFF" /> <img src="https://github.com/user-attachments/assets/d452a960-aa2d-4c31-9793-6170c5ba8045"/>
-
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/37d30946-e9d4-460f-a789-364ba597dc5c" />
+ art by me
+</p>
+</p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/7ed07675-57d4-483b-a2f6-10cd6b32a8b2" />
 </p>
 <p align="center">
  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
