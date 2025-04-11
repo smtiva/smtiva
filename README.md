@@ -5,11 +5,11 @@
   <img src="https://komarev.com/ghpvc/?username=smtiva&color=66CCFF" /> <img src="https://github.com/user-attachments/assets/d452a960-aa2d-4c31-9793-6170c5ba8045"/>
 </p>
 <p align="center">
- art by me
+
 </p>
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/3dd45b63-af8b-4d1f-bd74-41b9721358b6" />
+  <img src="https://github.com/user-attachments/assets/6bc4a09f-2f7d-469b-a991-772b07a6f715" />
 </p>
 <p align="center">
  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
