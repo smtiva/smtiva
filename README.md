@@ -12,7 +12,7 @@
   <img src="https://github.com/user-attachments/assets/6bc4a09f-2f7d-469b-a991-772b07a6f715" />
 </p>
 <p align="center">
- <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
+ <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero + etc.. | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
 
 
 </p>
