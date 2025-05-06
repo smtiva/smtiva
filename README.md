@@ -9,7 +9,10 @@
 </p>
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/6bc4a09f-2f7d-469b-a991-772b07a6f715" />
+   <img src="https://github.com/user-attachments/assets/33a149d0-f3f2-4431-9292-6b3b09ebf951" />
+  <img src="https://github.com/user-attachments/assets/9380614a-57a3-4e05-a30a-5597b8e54d09" />
+  <img src="https://github.com/user-attachments/assets/de978354-9845-4a11-a31b-8e08715c7dcc" />
+
 </p>
 <p align="center">
  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero + anubis , etc.. | no prns | blasian  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
