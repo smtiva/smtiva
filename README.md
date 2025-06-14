@@ -15,7 +15,7 @@
 
 </p>
 <p align="center">
- <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero + anubis , etc.. | no prns | mixed saudi  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
+ <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/> hero + , etc.. | no prns | mixed saudi  <img src="https://github.com/user-attachments/assets/2a52dc0f-4376-440c-8680-976774a7cc1e"/>
 
 
 </p>
