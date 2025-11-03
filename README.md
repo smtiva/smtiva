@@ -1,9 +1,6 @@
 
 </p>
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=smtiva/> <img src="https://github.com/user-attachments/assets/d452a960-aa2d-4c31-9793-6170c5ba8045"/>
-</p>
-<p align="center">
 
 </p>
 </p>
