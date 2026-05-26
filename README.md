@@ -13,8 +13,7 @@
 
 </p>
 <p align="center">
-no dni except for creeps
-<img src="https://github.com/user-attachments/assets/e10ed1a3-4d97-4df3-9164-910ec0b91e2f"/>
+brave statements only on this github: SMT > persona > devil survivor
 
 
 </p>
