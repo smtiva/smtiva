@@ -13,7 +13,7 @@
 
 </p>
 <p align="center">
-brave statements only on this github: SMT > devil summoner > persona > DDS > devil survivor > soul hackers
+brave statements only on this github: SMT > devil summoner > persona > DDS > devil survivor > soul hackers 2
 
 
 </p>
